@@ -11,5 +11,3 @@
 - 📫 How to reach me: LinkedIn: Bariyat Taiwo Eyiowuawi 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: My twin sister was born 45 minutes after me
-
-- 
